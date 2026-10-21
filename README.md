@@ -12,4 +12,4 @@ I'm currently pursuing my Master's in Interdisciplinary Data Science at Duke Uni
 
 ### ✿ let's connect!
 
-[portfolio](https://www.tientl.com/) · [linkedin](https://www.linkedin.com/in/tientle10/)
+[portfolio | tientl.com](https://www.tientl.com/) · [linkedin](https://www.linkedin.com/in/tientle10/)
